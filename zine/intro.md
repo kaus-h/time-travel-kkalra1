@@ -1,1 +1,1 @@
-Version B: This zine takes you on a journey through time and imagination.
+Conflict A2: The Time Travel Zine Begins Here.
