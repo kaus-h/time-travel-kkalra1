@@ -1,1 +1,1 @@
-Version A: Welcome to the ultimate Time Travel Zine adventure.
+Version B: This zine takes you on a journey through time and imagination.
