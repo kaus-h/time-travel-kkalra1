@@ -1,1 +1,1 @@
-Welcome to the Time Travel Zine. Hop up in my time machine. Warp speed!
+This Time Machine zine starts your journey through time.
